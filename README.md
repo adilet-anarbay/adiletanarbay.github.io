@@ -1,0 +1,1 @@
+# adiletanarbay.github.io
